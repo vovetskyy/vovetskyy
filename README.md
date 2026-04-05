@@ -1,4 +1,8 @@
-## Vitaliy. SW-Exorcist, Architect, Developer.
+## Vitaliy. 
+## SW-Exorcist, Architect, Developer.
+## German guy with the ukrainian roots.
+
+![UkrShrek](https://github.com/user-attachments/assets/ace21012-5f27-42c5-adc2-59fabd11e4a6)
 
 
 
